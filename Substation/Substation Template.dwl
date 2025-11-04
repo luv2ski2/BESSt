@@ -1,3 +1,3 @@
-josephlevtov
-Joseph’s MacBook Air 
-Tuesday, October 28, 2025  10:19:23?AM Mountain Daylight Time
+sophi
+MY_COMPUTER 
+Tuesday, November 4, 2025  8:45:00 AM
